@@ -1,1 +1,1 @@
-<strong> !false, its funny because its true! </strong>
+[![](https://media2.giphy.com/media/xUA7bdpLxQhsSQdyog/giphy.gif)](#)
