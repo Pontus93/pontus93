@@ -1,1 +1,1 @@
-[![](https://github.com/saadeghi/saadeghi/blob/master/dino.gif)](#)
+<strong> !false, its funny because its true! </strong>
